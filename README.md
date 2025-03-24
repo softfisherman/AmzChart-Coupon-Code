@@ -23,7 +23,7 @@ Key benefits:
 - Automated review sentiment monitoring
 - Historical sales data visualization
 
-👉 [Claim Coupon Code！](https://bit.ly/4bXeavq){:target="_blank"}
+👉 [Claim Coupon Code！](https://bit.ly/4bXeavq)
 
 ---
 
