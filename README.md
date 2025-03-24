@@ -1,6 +1,6 @@
 # AmzChart Promo Code: Unlock Exclusive Savings for Amazon Sellers (2025 Update)
 
-👉 [Claim Coupon Code！](https://bit.ly/4bXeavq){:target="_blank"}  
+👉 [Claim Coupon Code！](https://bit.ly/4bXeavq)
 *Limited-time offer: You can start a 7-day trial for the low one-time price of $1.*
 
 ## Table of Contents
